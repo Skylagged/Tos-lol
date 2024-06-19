@@ -6,3 +6,5 @@
 Wir sind eine seite um kinder zu verkaufen
 # Info:
 Kinder sind laut wie hölle also schließen sie die Keller Tür wenn Gäste/Familie bei ihnen ist.
+# Ja 
+das ist ne scherzseite digga nehm es net ernst ich hab die um 4 uhr morgens gemacht
