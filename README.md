@@ -1,5 +1,5 @@
 # Tos-lol
-1. Wenn du Kinder kaufst besitzt du sie, also denk nicht mal dran die zurück zu schieben
+1. Wenn du Kinder kaufst besitzt du sie, also denk nicht mal dran die zurück zu geben.
 2. Kinder können nervig werden, nicht unser problem.
 3. Keine geld zurück garantie.
 # Was wir machen:
